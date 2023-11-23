@@ -1,2 +1,1 @@
 # Fotografia-Computacional
-# Fotografia-Computacional
